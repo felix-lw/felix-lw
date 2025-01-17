@@ -1,1 +1,1 @@
-[joinlivewell.ca](https://joinlivewell.ca)
+[joinlivewell.ca](https://joinlivewell.ca/medications/ozempic)
